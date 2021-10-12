@@ -1,4 +1,4 @@
-### Hello everyone! Live Long and Prosper!👋
+### Hello everyone! I'm Alisa. 🖖Live Long and Prosper!🖖
 ___________________________
 ### Junior Frontend Developer
 
